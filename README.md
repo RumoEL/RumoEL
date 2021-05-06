@@ -4,4 +4,5 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 PGP key: see myPGPkey.txt
 - 📫 My mail: tbr4ddeqrrz25wwrqstr5b1s1rvq@gmail.com
-DISCORD : https://discord.gg/5JYhydwgpb
+- 📫 DISCORD : https://discord.gg/5JYhydwgpb
+- 📫 TWITTER : https://twitter.com/rumo_el
